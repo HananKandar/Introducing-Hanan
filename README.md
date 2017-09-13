@@ -22,7 +22,7 @@ Some of my hobbies include...
 Other than those main hobbies, I love spending time with my family and friends. Lately, I have been doing a lot of volunteer work in the community to complete my 40 hours of community involvement required to graduate. 
 
 #### **Languages That I Speak**
-The main language that I speak is of course English. Although, I have also been in French Immersion since kindergarten which has led me to be quite fluent. Finally, I know _**some**_ Arabic, but I am not entirely fluent. 
+The main language that I speak is of course English. Although, I have been in French Immersion since kindergarten which has led me to be quite fluent. Finally, I know _**some**_ Arabic, but I am not _entirely_ fluent. 
 
 #### **My favourite quote**:
 > “No one is born hating another person because of the color of his skin, or his background, or his religion. People must learn to hate, and if they can learn to hate, they can be taught to love, for love comes more naturally to the human heart than its opposite.”
