@@ -6,18 +6,18 @@ Hello there! My name is Hanan, I'm fourteen years old and here are some facts ab
 My full name is Hanan Kandar. When I was born, my oldest brother chose my name. The name "Hanan" means compassion and kindness in Arabic.
 
 #### **Family**:
-In my family, I have two older brothers, an older sister, and a mother and father. I also have an adorable cat named Liam. I am the youngest child in my family, which can have many perks! Both my parents are from _Lebanon_. I have never actually been there before, but I hope to travel there someday. My siblings and I were all born and raised in Ottawa, Ontario.
+In my family, I have two older brothers, an older sister, and a mother and father. I also have an adorable cat named Liam. I am the youngest child in my family, which can have many perks! Both my parents are from _Lebanon_. I have never actually been there before, but I hope to travel there someday. My siblings and I were all born and raised in _Ottawa, Ontario_.
 
 #### **Favourite Music**
 I have always been a fan of older music. I think part of the reason is since my siblings are all ten years or older than me, I was always hearing them blast their music when I was younger.. Some classic singers that I love are Michael Jackson and Elvis Presley. As for more 90s music, I love artists such as "The Backstreet Boys," "NSYNC," "The Spice Girls," etc. As for music that is more of this time, I really love Ed Sheeran's songs. 
 
 #### **Hobbies**: 
 Some of my hobbies include...
-* reading
-* watching movies and T.V.
-* biking
-* writing
-* calligraphy
+* Reading
+* Watching movies and T.V.
+* Biking
+* Writing
+* Calligraphy
 
 Other than those main hobbies, I love spending time with my family and friends. Lately, I have been doing a lot of volunteer work in the community to complete my 40 hours of community involvement required to graduate. 
 
